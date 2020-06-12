@@ -15,4 +15,8 @@ Turkey
 
 # Mah-e-mir ।
 Anjum Shahzad
- 
+
+# Choked (Paisa bolta hai)
+2020
+India
+
